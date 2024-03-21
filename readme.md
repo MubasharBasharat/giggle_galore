@@ -22,4 +22,4 @@ We reserve the right to update or modify this privacy policy at any time. Any ch
 
 ## Contact Us
 
-If you have any questions or concerns about this privacy policy or the handling of your data in Expense Diary, please contact us at [your@email.com](mailto:your@email.com).
+If you have any questions or concerns about this privacy policy or the handling of your data in Expense Diary, please contact us at [rtechnologiesapps.pk@gmail.com](mailto:your@email.com).
